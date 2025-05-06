@@ -1,1 +1,1 @@
-Current masters student at Washington University in St. Louis in the Setton lab
+Engineer scientist at [UN&UP](https://www.unandup.com/)
